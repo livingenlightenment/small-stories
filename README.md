@@ -1,1 +1,1 @@
-# small-stories
+# Small stories from Living Enlightenment book
