@@ -15,9 +15,10 @@ If he keeps quiet, then he is not enlightened.’
 The disciple was puzzled.
 He asked, ‘You say he neither speaks nor keeps quiet. What does he do?’
 
-The master replied:
+The master replied,
 ‘He sings! His being sings.
 He neither speaks, nor keeps quiet.
 His very being sings.’
+
 - p1-2, Living Enlightenment, unabridged, 7th Edition
 ```
